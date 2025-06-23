@@ -1,4 +1,4 @@
-# 💫 About Me:Hi,I'am Ashwath M N
+# 💫Hi,I'am Ashwath M N
 i am a student
 
 
